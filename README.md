@@ -1,2 +1,2 @@
-![](https://files.catbox.moe/ocxyp0.gif)
+![](https://files.catbox.moe/q33swj.jpeg)
 [rntry](https://rentry.co/helpysbestpal)
