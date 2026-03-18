@@ -1,6 +1,3 @@
-<p align="center">
-if u ship the afton fam together dni thx you
-<p align="center">
-<img width="460" height="460" src="https://files.catbox.moe/ee9hi3.jpeg">
-<p align="center">
-ac @solayaki on twt
+ [ata](https://mike.atabook.org) [rentry](https://rentry.co/sisterlocation) [matching](https://rentry.co/michaeIafton)
+
+ic viarayy01
