@@ -1,4 +1,4 @@
- [ata](https://mike.atabook.org) [rentry](https://rentry.co/sisterlocation) [matching](https://rentry.co/michaeIafton)
+ [ata](https://mike.atabook.org) [rentry](https://rentry.co/sisterIocation) [matching](https://rentry.co/michaeIafton)
 
 [flowerboy](https://github.com/fIowerboy) is me
 
